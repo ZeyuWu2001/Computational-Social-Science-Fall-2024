@@ -9,4 +9,4 @@ Blum Center for Developing Economies, UC Berkeley
 **Concentration:** Data Analytics for Social Impact  
 **Interests:** Sustainable Urban Science, Human Mobility 
 
-![Zeyu Wu Image](images/1C1A2755_2.JPG)
+![Selfie](https://github.com/user-attachments/assets/3d6236d7-a61b-41ae-8bf1-cd397e00cff5)
