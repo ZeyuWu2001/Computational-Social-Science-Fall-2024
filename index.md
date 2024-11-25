@@ -10,3 +10,4 @@ Blum Center for Developing Economies, UC Berkeley
 **Interests:** Sustainable Urban Science, Human Mobility 
 
 ![Zeyu Wu Image](https://github.com/user-attachments/assets/3595a710-8f86-4985-8750-b3171549edaf)
+<img src="https://github.com/user-attachments/assets/3595a710-8f86-4985-8750-b3171549edaf" alt="Zeyu Wu Image" width="300"/>
