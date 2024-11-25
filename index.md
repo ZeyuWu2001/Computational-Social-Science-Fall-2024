@@ -3,7 +3,10 @@
 **Instructor: Kasey Zapatka**
 
 ***Zeyu Wu***  
-Master of Development Engineering  
+B.E. in Civil Engineering
+
+M.S. in Development Engineering
+
 Blum Center for Developing Economies, UC Berkeley  
 
 **Concentration:** Data Analytics for Social Impact  
